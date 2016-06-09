@@ -1,1 +1,1 @@
-15 elements changed on 6/9/2016
+13 elements changed on 6/9/2016
